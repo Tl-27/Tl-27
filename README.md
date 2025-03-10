@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... > dont this is for school
 - 😄 Pronouns: 
 - ⚡ Fun fact: ...  
-##I am HIM (pronouns) 
+## I am HIM (pronouns) 
